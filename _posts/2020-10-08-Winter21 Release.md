@@ -1,1 +1,1 @@
-winter 21 releadse notes
+winter 21 release notes
